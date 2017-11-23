@@ -1,2 +1,2 @@
-# Ade ganteng
+# Semangat cuy
 untuk masa depan cemerlang
