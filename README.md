@@ -1,2 +1,2 @@
-# segera_akd
+# Ade ganteng
 untuk masa depan cemerlang
